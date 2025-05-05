@@ -39,7 +39,6 @@
 
 <p>Its activities span renewable energy funding, public-private partnership arrangements, and global transport infrastructure. Macquarie’s reach within the infrastructure sector continues to contribute to long-term service delivery projects across regions including Asia-Pacific, Europe, and the Americas.</p>
 
-<h3>Call to Action</h3>
 
 <p>Stay informed on developments within the <a href="https://kalkinemedia.com/au/asx100" target="_blank">top ASX 100</a> to better understand key industrial movements and sector-wide activities. Follow trusted business updates and official company announcements to track how leading Australian firms shape the economy through innovation, expansion, and cross-sector strategies.</p>
 
